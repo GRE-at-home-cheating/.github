@@ -4,7 +4,7 @@
 Our GRE Cheating Service is available for you whenever you need it. If you're shooting for a solid GRE score but feel like your prep ain't cutting it, hit us up! We'll hook you up for those GRE at-home exams. You'll take the test, and we'll slide you the right answers. Totally safe and sound. We've helped several students already, so you can completely trust us!
 
 ## Money stuff: How you pay and how much you pay?
-Not only we are very affordable, but you also don't need to pay anything upfront. Just wait until you've aced your exam, and once you see those awesome scores on your screen, that's when you make the payment. Want in? Look for **@GRE_High_Score** on Telegram, and hit us up!
+Not only our **GRE Cheating Service** is very affordable, but you also don't need to pay anything upfront. Just wait until you've aced your exam, and once you see those awesome scores on your screen, that's when you make the payment. Want in? Look for **@GRE_High_Score** on Telegram, and hit us up!
 
 <!--
 ## Download Leaked GRE Questions
